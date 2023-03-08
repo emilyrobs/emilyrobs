@@ -9,5 +9,5 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: emilyrobs.github.io
 - 😄 Pronouns: she, her
-- ⚡ Fun fact: I watch anime :)
+
 
